@@ -1,0 +1,1 @@
+A Gama Academy eh atualmente uma das melhores escolas educando,treinando e orientando estudantes e futuros profissionais de tecnologia. Se puder conhecer acessem em Gama Academy em http://gama.academy
